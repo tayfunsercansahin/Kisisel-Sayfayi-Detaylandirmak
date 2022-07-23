@@ -1,1 +1,1 @@
-# Ki-isel-Sayfay-Detayland-rmak
+# Kisisel-Sayfayi-Detaylandirmak
